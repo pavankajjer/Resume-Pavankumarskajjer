@@ -1,2 +1,9 @@
-# Resume-Pavankumarskajjer
-Resume
+# Resume-Pavankumar s kajjer
+
+Pavankumar s kajjer
+
+
+
+
+
+Education 
